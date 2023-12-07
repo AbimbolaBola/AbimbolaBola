@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @AbimbolaBola
-Data Analyst- 🌱 I’m currently learning Data Analytics- 💞️ I’m looking to collaborate on Data Analytics
+Data Analyst- 🌱 I’m currently learning Data Analytics- 💞️ I’m looking to collaborate on projects in relation Data Analysis 
 - 📫 How to reach me Abimbola.ferdinand@gmail.com
 
 <!---
